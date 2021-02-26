@@ -5,7 +5,7 @@
        TEAM
 -------------------
 JT Brewer
-Victoria Williamson
+Victoria Williamson...the cool one
 Jakob Clapsaddle
 
 
